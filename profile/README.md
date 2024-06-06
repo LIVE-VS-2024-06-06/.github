@@ -1,4 +1,8 @@
-# !☆!【公式LIVE放送!】@!サッカー日本代表VSミャンマー代表ライブ放送・放送・テレビ放送・ライブ配信・生中継・生放送・テレビ放送 2024年06月06日
+## !☆!【公式LIVE放送!】@!サッカー日本代表VSミャンマー代表ライブ放送・放送・テレビ放送・ライブ配信・生中継・生放送・テレビ放送 2024年06月06日
+
+**[🔴生中継▶ サッカー日本代表VSミャンマー代表](https://sportsonhd.com/hd/soccer/?jp)**
+
+[![](https://gitlab.com/gitlab-org/growthproject/uploads/530917e2ec5ef3de8f08074ec6ebb5f8/tv-image.gif)](https://sportsonhd.com/hd/soccer/?jp)
 
 【6月6日テレビ放送】サッカー日本代表 ミャンマー戦の地上波・民放・ネット中継予定｜FIFAワールドカップ26アジア2次予選
 
